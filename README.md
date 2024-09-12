@@ -1,1 +1,1 @@
-# James-Danz
+# James-Danz and james.danz@wsu.edu
